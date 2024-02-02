@@ -1,1 +1,1 @@
-# teb-nft-collection
+# NFT-COLLECTION
